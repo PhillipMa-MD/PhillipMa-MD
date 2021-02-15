@@ -1,6 +1,6 @@
 # About Me
 
->>“Beware of the man who works hard to learn something, learns it, and finds himself no wiser than before” - Vonnegut? Who remembers. 
+>“Beware of the man who works hard to learn something, learns it, and finds himself no wiser than before” - Vonnegut? Who remembers. 
 
 New Jersey native currently living in Baltimore with my wife and pet cactus. I recently graduated from medical school and I enjoy learning about medicine, psychiatry, and data science (buzzwords!). 
 
