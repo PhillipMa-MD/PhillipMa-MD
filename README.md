@@ -9,6 +9,6 @@ In my spare time I enjoy purchasing :golfing: golf equipment that I don’t need
 
 - :trophy: 3x Fantasy Football Champion
 
-- :football: Avid Daniel Jones apologist
+- :football: Avid Giants apologist
 
 - :books: Consumer of fancy bottled water and blogs written by people who are much smarter than I am
